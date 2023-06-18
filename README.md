@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @LwukBr!
+# 👋 Hi, I’m Lwuk!
 
 - 🗺️ I'm from Brazil! 🇧🇷
 - 🎨 I like the color blue! 🔵
